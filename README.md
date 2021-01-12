@@ -19,6 +19,6 @@ https://www.youtube.com/c/SuperMario64BetaArchive/
 ``@JosephtheKP``
  
 ``@TheDanielh05``
-...and many others
-	Thank you.
+...and many others.
+Thank you.
  
